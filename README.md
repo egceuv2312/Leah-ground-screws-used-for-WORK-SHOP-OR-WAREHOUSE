@@ -1,0 +1,4 @@
+Leah-ground-screws-used-for-WORK-SHOP-OR-WAREHOUSE
+==================================================
+
+SHANDONG LEAH INDUSTRY CO.,LIMITEDwe have been specialized in the production of ground screw since 1997,we have gained rich experience in these years ground screw production .The diameter of our ground screw ranges from 52mm-300mm, and the length ranges from 30mm-3000mm. Now we supply leah ground screws used for construction. Instead of cement foundation.Can save time and money. Become more environmentally friendly and efficient.We can design and produce all types of ground screw according to your requirement. Our company has the faith of quality is our life and credit standing is the power of development. We will supply customers the best and shortcut service sincerely.More information please take a look at our company website www.ground-screw.com www.ground-screw.com
